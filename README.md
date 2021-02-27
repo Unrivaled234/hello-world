@@ -2,4 +2,4 @@
 
 Hi Humans!
 
-I am mysterious man, I like hamburgers the most.
+I am a mysterious person
